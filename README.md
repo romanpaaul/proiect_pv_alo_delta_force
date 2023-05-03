@@ -1,0 +1,1 @@
+# proiect_pv_alo_delta_force
